@@ -1,4 +1,4 @@
-### Hi there 👋
+### Hi there 👋 my Name is Mikii, I have a degree in Mechanical Engineering and currently taking my Master's is Energy Engineering at Memorial University of Newfoundland. I like playing games on my PS5, Switch, and Xbox together with my son, and hanging out with my daughter. I enjoy the weekends with my family, go to church, and drive around the city or nearby towns. I play electric guitar in a band and we play in birthdays and gathering, but nothing too serious. 
 
 <!--
 **pmkabuel13/pmkabuel13** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
